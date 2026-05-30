@@ -5,7 +5,7 @@ Hindi namin kukunin unit mo - OR/CR lang ang collateral!
 
 ## Contact
 - 📞 Phone: 0907 083 0558
-- 📘 Facebook: https://www.facebook.com/profile.php?id=61581002437043
+- 📘 Facebook: https://web.facebook.com/yournewcars/
 - 💬 WhatsApp: https://wa.me/639070830558
 - 💬 Messenger: m.me/61581002437043
 
